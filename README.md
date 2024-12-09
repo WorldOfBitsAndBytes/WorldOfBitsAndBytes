@@ -5,7 +5,7 @@
 - 📫 Writing blogs on my personal blog @ https://www.markswinkels.nl
 - 👀 Find me on Twitter @Mark_Swinkels
 - 🌀 Find me on LinkedIn (linkedin.com/in/mark-swinkels-02b0a115)
-- 
+
 Feel free to contact me if you have any questions!!
 
 <!---
